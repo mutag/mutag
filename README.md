@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi Hello Hola Wassup! 👋 I've been coding since forever but look out because we're going FULL TIME NOW!
 
 <!--
 **mutag/mutag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
